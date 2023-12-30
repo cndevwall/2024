@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "The Opening of Japan: How Commodore Perry's Successful Mission Changed the Country"
-date:   2023-12-30 14:07:40 +0000
+date:   2023-12-22 14:07:40 +0000
 categories: News
 excerpt_image: https://www.thoughtco.com/thmb/hMvs7xGGh780uxrvdxLv0gzdnc8=/1137x719/filters:no_upscale():max_bytes(150000):strip_icc()/Perry-in-Japan-5c0ac118fb574579a2d3d6b40615b159.jpg
 ---
@@ -11,7 +11,7 @@ Japan had received some information about other countries through its limited tr
 
 
 ![](https://www.thoughtco.com/thmb/hMvs7xGGh780uxrvdxLv0gzdnc8=/1137x719/filters:no_upscale():max_bytes(150000):strip_icc()/Perry-in-Japan-5c0ac118fb574579a2d3d6b40615b159.jpg)
-### Increasing Foreign Encroachment and Military Threats  
+### Increasing Foreign Encroachment and Military Threats
 
 In 1806, Russian envoy Nikolai Rezanov tried to forcibly open trade negotiations with Japan but was rebuffed. Two years later, the British warship HMS Phaeton boldly entered the harbor at Nagasaki, exposing Japan's weak coastal defenses. The Golovnin Incident of 1811, where a Russian ship was seized and its crew held hostage, almost sparked a war between the two countries. These incidents showed that Japan was struggling to keep foreign powers at bay.
 
@@ -23,7 +23,7 @@ By the early 19th century, it was becoming practically impossible for Japan to i
 
 In 1846, Commodore James Biddle sailed to Japan on a mission to establish diplomatic ties but was rebuffed. Three years later, Captain James Glynn negotiated the release of shipwrecked American sailors. While tensions remained high, these earlier encounters paved the way for Perry's landmark visit. For the ambitious Perry, opening Japan represented a career-defining challenge.
 
-### Commodore Perry's Historic Expedition    
+### Commodore Perry's Historic Expedition
 
 In 1852, Commodore Matthew Perry was tasked by the US government to force Japan to open up to American trade through diplomacy, backed up by an overwhelming display of naval firepower if needed. At the head of a large fleet of modern warships, Perry steamed into Uraga Harbor near Edo (now Tokyo) in July 1853, stunning the isolated Japanese. Outmatched militarily, they had no choice but to negotiate with the imposing Americans.
 

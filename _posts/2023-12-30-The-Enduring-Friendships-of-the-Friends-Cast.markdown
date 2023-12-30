@@ -1,12 +1,12 @@
 ---
 layout: post
 title: "The Enduring Friendships of the Friends Cast"
-date:   2023-12-30 20:05:35 +0000
+date:   2023-12-22 20:05:35 +0000
 categories: News
 excerpt_image: https://akns-images.eonline.com/eol_images/Entire_Site/201943/rs_1024x759-190503131226-1024.friends.ct.050319.jpg?fit=inside|900:auto&amp;output-quality=90
 ---
 ### Jennifer Aniston and Matthew Perry's Bond
-Jennifer Aniston and Matthew Perry developed a close friendship over the 10 seasons they spent together on the hit sitcom Friends. While their characters Rachel Green and Chandler Bing started out as uneasy acquaintances, Perry revealed in his recent memoir that he initially had a crush on his co-star Aniston. However, any romantic feelings soon gave way to a caring friendship as they got to know each other better through working together every day on set. 
+Jennifer Aniston and Matthew Perry developed a close friendship over the 10 seasons they spent together on the hit sitcom Friends. While their characters Rachel Green and Chandler Bing started out as uneasy acquaintances, Perry revealed in his recent memoir that he initially had a crush on his co-star Aniston. However, any romantic feelings soon gave way to a caring friendship as they got to know each other better through working together every day on set.
 
 Aniston would become one of Perry's closest confidants, especially as he privately battled substance abuse issues during his time on Friends. She supported him through some extremely difficult periods as his addiction took its toll both physically and mentally. Even over 20 years later, their bond remains strong as evidenced by Aniston's emotional tribute to Perry at the Friends reunion special, where she spoke of looking up to him "like a little brother."
 
@@ -15,7 +15,7 @@ Aniston would become one of Perry's closest confidants, especially as he private
 ### Matthew Perry and Matt LeBlanc's Connection
 While Friendscame to an end in 2004 after its tenth season, Perry and LeBlanc have continued to stay in touch. They frequently praise each other during joint interviews, with Perry calling LeBlanc a "buddy" he cares deeply about. LeBlanc has also referred to having a "great relationship" with Perry that has lasted well beyond their time as co-stars on the iconic sitcom. Both actors seem to have formed an enduring off-screen friendship thanks to the close bonds developed over many years of working together.
 
-### Aniston and Perry's Relationship in Perspective 
+### Aniston and Perry's Relationship in Perspective
 Aniston’s heartfelt words about Perry at the Friends reunion spoke volumes about the admiration and caring she still feels for her former co-star, even two decades later. In his memoir, Perry also reflected fondly on the emotional support Aniston provided him privately during his toughest battles with addiction issues while filming the show. Their relationship shows how meaningful connections can form between cast members through sharing the highly intimate experience of making a popular TV series together for years.
 
 ### Matt LeBlanc's Career Post-Friends
@@ -24,7 +24,7 @@ While the Friends spinoff Joey focused on Matt LeBlanc's character Joey Tribbian
 ### Matthew Perry's Health Over the Years
 Friends fans noticed Matthew Perry's appearance fluctuate noticeably over the show's 10 season run, changes many attributed even at the time to substance abuse issues. Perry would later be open about his past struggles with addiction to drugs and alcohol taking a heavy toll on his physical and mental wellbeing. While clearly affected for many years, more recently Perry seems happier and healthier than during some of his darker periods in the late 90s/early 2000s. His new memoir provides insight into the challenges and progress he's made on his personal journey to wellness since those days.
 
-### Matthew Perry and Jennifer Aniston's Romantic History  
+### Matthew Perry and Jennifer Aniston's Romantic History
 In addition to their strong friendship bond, Perry revealed in his memoir that he initially found Jennifer Aniston hugely attractive when they first met. He asked her out early on but was turned down. However, rather than make things awkward, they maintained a professional working relationship that soon blossomed into a caring friendship off-screen as well. Their compatibility as friends endured far longer than any brief romantic intrigue when they were first getting to know each other as the actors cast to play Rachel and Chandler.
 
 ### The Friends Reunion Special in 2021
