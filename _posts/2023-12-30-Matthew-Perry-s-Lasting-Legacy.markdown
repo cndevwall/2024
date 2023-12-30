@@ -3,13 +3,13 @@ layout: post
 title: "Matthew Perry's Lasting Legacy"
 date:   2023-12-30 05:24:08 +0000
 categories: News
-excerpt_image: https://cdn.newsserve.net/en/knowledge/Matthew-Perry_20190805.jpg
+excerpt_image: https://people.com/thmb/2JwS1JMzZK3hkXblme350Wsq1Q0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():focal(749x0:751x2)/PEOPLE_MatthewPerry_tout-78bcbb778fbb4707a3ebfc4ae1cec146.jpg
 ---
 ### A Sad Goodbye at 54
 Matthew Perry passed away at the young age of 54. Best known for his iconic role as Chandler Bing on the beloved sitcom Friends, Perry was loved by millions of fans worldwide. His unexpected passing has left many mourning the loss of the talented comedian.
 
 
-![](https://cdn.newsserve.net/en/knowledge/Matthew-Perry_20190805.jpg)
+![](https://people.com/thmb/2JwS1JMzZK3hkXblme350Wsq1Q0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():focal(749x0:751x2)/PEOPLE_MatthewPerry_tout-78bcbb778fbb4707a3ebfc4ae1cec146.jpg)
 ### Defining his Career as Chandler Bing  
 Perry will forever be remembered for his role as sarcastic but lovable Chandler Bing on Friends. Over the decade-long run of the hit NBC sitcom, he delivered countless hilarious one-liners and shared unforgettable comedic moments with his co-stars Jennifer Aniston, Courteney Cox, Matt LeBlanc, Lisa Kudrow and David Schwimmer. His peerless timing and delivery elevated many of the show's most memorable scenes.  
 
